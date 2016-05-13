@@ -62,3 +62,4 @@
 ## 报名
 请有意向的同学**自行完成**考察阶段的任务。
 密切注意本项目动向。
+<a target="_blank" href="http://shang.qq.com/wpa/qunwpa?idkey=af519248b05970a7907e4184c53104c0281a9c4a819f04da002ffb7cd57d696f"><img border="0" src="http://pub.idqqimg.com/wpa/images/group.png" alt="玩转儿网页" title="玩转儿网页"></a>
